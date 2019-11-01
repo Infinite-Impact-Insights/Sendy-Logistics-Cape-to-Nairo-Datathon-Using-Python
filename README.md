@@ -2,7 +2,6 @@
 
 #### 2nd runners up Ke team, {October, 2019}
 
-#### By **{Josephine Wanjiku}**
 
 ## Description
 
